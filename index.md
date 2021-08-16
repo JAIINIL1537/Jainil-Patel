@@ -22,6 +22,6 @@
     
 # Contact me
 
- ■ [Instagram](https://www.instagram.com/jainil315_patel/)
+ ■ [Instagram](https://www.instagram.com/jainil315_patel/).
  
- ■ [Discord](https://discord.gg/XCwZSScfw3)
+ ■ [Discord](https://discord.gg/XCwZSScfw3).
